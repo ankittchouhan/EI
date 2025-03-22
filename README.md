@@ -1,1 +1,1 @@
-# EI
+# Emotional Intelligence Notes
